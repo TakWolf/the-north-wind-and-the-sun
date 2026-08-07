@@ -1,0 +1,5 @@
+# El Viento del Norte y el Sol
+
+**Español**
+
+El Viento del Norte y el Sol discutían sobre cuál de los dos era más fuerte. En ese momento vieron acercarse por el camino a un viajero envuelto en una capa. Acordaron que quien lograra que el viajero se quitara la capa sería considerado el más fuerte. El Viento del Norte comenzó a soplar con todas sus fuerzas. Pero cuanto más fuerte soplaba, más se apretaba el viajero la capa contra el cuerpo. Al final, el Viento del Norte se dio por vencido. Entonces el Sol comenzó a brillar suavemente y a calentar al viajero, que se quitó la capa de inmediato. Así, el Viento del Norte tuvo que admitir que el Sol era más fuerte que él.
